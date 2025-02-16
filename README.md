@@ -1,6 +1,6 @@
-# RF - Rehman Faiza Cloths
+# RF - RF Cloths
 
-Welcome to RF (Rehman Faiza Cloths), a brand dedicated to premium men's and women's fashion. We specialize in high-quality clothing, including shalwar kameez, boutique wear, and modern apparel.
+Welcome to RF Cloths), a brand dedicated to premium men's and women's fashion. We specialize in high-quality clothing, including shalwar kameez, boutique wear, and modern apparel.
 
 ## 🌟 About Us
 RF is committed to providing stylish, comfortable, and high-quality clothing for all occasions.
